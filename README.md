@@ -1,3 +1,5 @@
+**Title: Real Estate Market Trends & Forecasting: Analyzing Rental & Sale Property Prices (2018-2020)**
+
 **Forecast of Property Prices for Rent & Sale**
 
 **1. Forecast of Property Prices for Rent**
